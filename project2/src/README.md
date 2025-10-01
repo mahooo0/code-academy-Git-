@@ -1,0 +1,1 @@
+bu qovluq senedler ucundu 
